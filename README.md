@@ -11,4 +11,5 @@ From a personal standpoint - I spent most of my life being completely sedentary.
 You can find more of me on:
 
 [LinkedIn](https://www.linkedin.com/in/mjconnell/)
+
 [Instagram](https://www.instagram.com/michaaelconnell/)
